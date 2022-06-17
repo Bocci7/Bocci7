@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bocci7
+- 👀 I’m interested in Gaming and Watching Movies
+- 🌱 I’m currently learning JS
+- 💞️ I’m looking to collaborate on Big projects
+- 📫 How to reach me instagram: @bocci_7,tg: @bocci_7.
